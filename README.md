@@ -1,1 +1,10 @@
-
+![InvisibleDisabilities](https://user-images.githubusercontent.com/119506390/207068434-86305427-e172-4f88-a6fb-36c35af6da9c.png)
+https://invisibledisabilities.org/connect/socialmedia/
+![threepeoplemind](https://user-images.githubusercontent.com/119506390/207068449-23a227f1-f333-421c-a3ca-741c78dfd7f6.png)
+https://disabilityin.org/mental-health/non-apparent-disability-vs-hidden-or-invisible-disability-which-term-is-correct/
+![classroom](https://user-images.githubusercontent.com/119506390/207068462-66724848-2cad-4612-b70e-e375398b80ff.png)
+https://annamend.com/2021/12/08/how-to-analyze-classroom-talk-part-1-of-4/
+![notalllooklike](https://user-images.githubusercontent.com/119506390/207068468-dd5fdcb4-69b8-4ef5-b0d8-903d1b9cabb2.png)
+https://hrphilosopher.com/2019/05/17/when-looks-deceive-detecting-and-accommodating-invisible-disabilities-a-shrm19blogger-interview-with-laura-de-leon/
+![What-is-an-invisible-disability-definition-Invisible-Disabilities-Association](https://user-images.githubusercontent.com/119506390/207068474-0e19a34b-5f91-4603-a023-4eb1af35ecf5.png)
+https://invisibledisabilities.org/what-is-an-invisible-disability/
